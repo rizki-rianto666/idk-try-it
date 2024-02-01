@@ -1,2 +1,2 @@
 # idk-try-it
-Rizi 
+M. Rizki Rianto
